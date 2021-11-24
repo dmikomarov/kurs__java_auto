@@ -1,0 +1,1 @@
+# kurs__java_auto
